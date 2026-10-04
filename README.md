@@ -1,0 +1,1 @@
+Hi i'm SHRIDEVI KRISHNA BADIGER.I am currently pursuing COMPUTER SCIENCE AND ENGINEERING. And this is my first REPOSITORY.
